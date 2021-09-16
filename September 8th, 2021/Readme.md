@@ -1,2 +1,0 @@
-<h1> Notion Page </h1>
-https://ebony-scissor-725.notion.site/AI-Weekly-Update-September-8th-2021-a2119851b5b74470b4971d064665e77e
